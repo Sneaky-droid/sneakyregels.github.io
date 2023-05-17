@@ -1,1 +1,0 @@
-# sneakyregels.github.io
